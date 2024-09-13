@@ -2,11 +2,7 @@
 
 ![1000024086](https://github.com/user-attachments/assets/32831f60-ca05-4d8c-923d-3c042a5023a5)
 
-
-
-
 ![1000023946](https://github.com/user-attachments/assets/09eee8e9-fa9f-4a64-b770-24f760636ff0)
-
 
 I like the ocean and warm baths.
 
@@ -16,7 +12,4 @@ my favorite band is Mili<img src="https://github.com/user-attachments/assets/554
 
 sometimes I draw, make music and 3d model as hobbies.
 
-
-
 ![1000024011](https://github.com/user-attachments/assets/4ffa4410-3f72-4258-afa8-72f918ace084)
-
