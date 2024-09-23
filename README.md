@@ -1,14 +1,19 @@
-![1000024086](https://github.com/user-attachments/assets/32831f60-ca05-4d8c-923d-3c042a5023a5)
+![1000024343](https://github.com/user-attachments/assets/6da91807-f1fc-4835-aa97-bfbec432a09e)
 
-this is mitra information.
+hello, my friend. nice to meet you.
 
-![1000024098](https://github.com/user-attachments/assets/fc296129-5f44-4bae-9adc-cf1836db2165)
-<img src="https://github.com/user-attachments/assets/43f4f10a-03dc-476d-9161-b6656a2c28e4" width="50" height="45"/> I love sonic. (-'v'-)
+I love sonic. (-'v'-) he's cool.  his werehog form is cool, too. I want permission to pet him.
 
-sometimes I draw, make music and 3d model as hobby..
+sometimes I draw, make music and 3d model as hobby. I am bad at it.
 
-<img src="https://github.com/user-attachments/assets/554492bc-4174-4f2a-abc2-701d7f07ca52" width="40" height="25"/> "Project Mili" is my favorite band.
+and I am really really bad at page design... I'm sorry... 
 
-I know English and Persian.
+some other times I read visual novel. makes me feel better.
 
-![1000024111](https://github.com/user-attachments/assets/5e1676c6-7a22-4068-9abc-2b5b3f99eed3)
+I like animals.. chimpanzees are amazing.
+
+<img src="https://github.com/user-attachments/assets/554492bc-4174-4f2a-abc2-701d7f07ca52" width="40" height="25"/> <-- "Project Mili" is my favorite band. they are all too good; I can't process it very well...
+
+I know some English and some Persian.
+
+![1000024341](https://github.com/user-attachments/assets/4ec2a2ff-deb7-4bde-a866-d6af812d1fc8)
