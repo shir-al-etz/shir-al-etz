@@ -1,16 +1,7 @@
-![1000024343](https://github.com/user-attachments/assets/6da91807-f1fc-4835-aa97-bfbec432a09e)
-
-hello, my friend. nice to meet you.
-
-I love sonic. (-'v'-) he's cool.  his werehog form is cool, too. I want permission to pet him.
+![1000024619](https://github.com/user-attachments/assets/34c33e63-4a69-4772-ac66-611b6dfc9a38)
+nice to meet you. (-'v'-)
 
 sometimes I draw, make music and 3d model as hobby. I am bad at it.
-
-and I am really really bad at page design... I'm sorry... 
-
-some other times I read visual novel. makes me feel better.
-
-I like animals.. chimpanzees are amazing.
 
 <img src="https://github.com/user-attachments/assets/554492bc-4174-4f2a-abc2-701d7f07ca52" width="40" height="25"/> <-- "Project Mili" is my favorite band. they are all too good; I can't process it very well...
 
