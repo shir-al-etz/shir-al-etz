@@ -1,9 +1,10 @@
-![1000024619](https://github.com/user-attachments/assets/34c33e63-4a69-4772-ac66-611b6dfc9a38)
+![1000024620](https://github.com/user-attachments/assets/a114e839-5b93-445b-beb2-dd4c2c9fbed6)
+
 nice to meet you. (-'v'-)
 
-sometimes I draw, make music and 3d model as hobby. I am bad at it.
+sometimes I draw, make music and 3d model as hobby..
 
-<img src="https://github.com/user-attachments/assets/554492bc-4174-4f2a-abc2-701d7f07ca52" width="40" height="25"/> <-- "Project Mili" is my favorite band. they are all too good; I can't process it very well...
+<img src="https://github.com/user-attachments/assets/554492bc-4174-4f2a-abc2-701d7f07ca52" width="40" height="25"/> <-- I love mili :>
 
 I know some English and some Persian.
 
