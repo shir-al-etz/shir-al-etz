@@ -7,5 +7,6 @@ sometimes I draw, make music and 3d model as hobby..
 language: English / فارسی
 
 
-![1000024344](https://github.com/user-attachments/assets/6b92b0f2-046f-48d4-90e4-b5106c3443c5) project mili is my hyperfixation 
+<a href="url"><img src="https://github.com/user-attachments/assets/743b4342-78c1-4870-a7d8-be3b34dc7b60" align="left" height="25" width="35" ></a>
+project mili is my hyperfixation 
 
