@@ -1,7 +1,5 @@
 ![1000024620](https://github.com/user-attachments/assets/a114e839-5b93-445b-beb2-dd4c2c9fbed6)
 
-nice to meet you. (-'v'-)
-
 sometimes I draw, make music and 3d model as hobby..
 
 language: English / فارسی
